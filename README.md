@@ -1,0 +1,1 @@
+# praktis_amali_4_7_kinson3a
